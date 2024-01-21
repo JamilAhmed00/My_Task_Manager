@@ -40,3 +40,23 @@ Preview:
 
 
 
+![To_Do_01](https://github.com/JamilAhmed00/My_Task_Manager/assets/95686803/95bf6216-547c-4b65-8d3a-26c01eb4f296)
+
+
+![to_Do_02](https://github.com/JamilAhmed00/My_Task_Manager/assets/95686803/28428ba8-9c38-4987-b39d-11c6ac656c12)
+
+
+
+![to_do_03](https://github.com/JamilAhmed00/My_Task_Manager/assets/95686803/251e0f2a-543b-49a8-90d7-83e83daab8b5)
+
+
+![to do 04](https://github.com/JamilAhmed00/My_Task_Manager/assets/95686803/2300f84c-ec13-4af3-a84b-c4bc413d729b)
+
+
+![to do 05](https://github.com/JamilAhmed00/My_Task_Manager/assets/95686803/971beb7a-9c51-4c50-a2c2-8edece75076b)
+
+
+
+
+
+
